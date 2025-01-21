@@ -21,6 +21,4 @@
 
 ✮┆`INTERESTS`:: [`ULTRAKILL`](<https://store.steampowered.com/app/1229490/ULTRAKILL/>) `, `[`TF2`](<https://store.steampowered.com/app/440/Team_Fortress_2/>) `, `[`Ponytown`](<https://pony.town/>) `, ` [`Roblox`](<https://www.roblox.com/home>) `, and` [`Half Life`](<https://store.steampowered.com/franchise/Half-Life>)
 
-✮┆`EXTRA`:: [`me when the awsum strawpage`](<https://freakazoidcentral.straw.page/>)
-
 ![image](https://github.com/user-attachments/assets/ca3b8a61-a1ee-474d-ab08-4029c9f63fbd)
