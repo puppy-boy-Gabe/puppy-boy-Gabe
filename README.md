@@ -1,24 +1,17 @@
-——「✮ *`Gabe's INTRO`* ✮」——
+🐾[˖° ⸝⸝ **intro** ˚ ༘ ೀ⋆｡˚](https://cdn.discordapp.com/attachments/1141153919377084498/1339967850084962344/Untitled178_20250214083321.png?ex=67b0a5ce&is=67af544e&hm=89e59c4a12800204b01665d3fe9324f49025c837ca7712352371c0e0e57c8810&)
 
+╰ [name(s)](https://.) ﹕Gabe/Gabriel, Freakazoid, Scout, Machine, Puppy
 
-✮┆`NICKNAMES`:: [`Machine, Scout, Medic, puppy, good boy`](https://.)
+︵ [prns](https://.) ﹕He / Him . They / Them . It / Itself
 
-✮┆`AGE`:: [`13-17, minor`](https://.)
+╰ [gender](https://.) ﹕non transitioned trans guy
 
-✮┆`GENDER`:: [`trans male`](https://.)
+︵ [age](https://.) ﹕13-15
 
-![image](https://github.com/user-attachments/assets/1f928fb0-d303-440a-be70-06d42d764aca)
+╰ [ethnicity / race](https://.) ﹕american with european/scandinavian heritage
 
-✮┆`PRONOUNS`:: [`he/they/it`](https://.)
+︵ [likes , dislikes](https://.)﹕♡- Moral orel, House M.D., crk, pt, roblox, mc, BNA, soad, korn, weird al, tf2, ultrakill, dogs, sharks, and dantes inferno | ⤫- incest, other things idk just dont be flirty w me unless its like jokingly
 
-✮┆`SEXUALITY`:: [`pan !!`](https://.)
-
-![image](https://github.com/user-attachments/assets/e80fd0a5-21cb-4102-a539-d306b7fce5eb)
-
-✮┆`LIKES`:: [`PUPPIES`](https://.) `, `[`sharks`](https://.) `, and my favorite songs are `[`Good god - Korn`](<https://open.spotify.com/track/5JrajjztyjvkuUB8ZqzUML?si=cbd997c976184e37>) `and`[`PopPipPo`](<https://music.youtube.com/watch?v=TNf3GPizM58&si=Hu8_VV5Wd7o3bAos>)
-
-✮┆`DISLIKES`::  `LARGE bugs and mentions of incest.`
-
-✮┆`INTERESTS`:: [`ULTRAKILL`](<https://store.steampowered.com/app/1229490/ULTRAKILL/>) `, `[`TF2`](<https://store.steampowered.com/app/440/Team_Fortress_2/>) `, `[`Ponytown`](<https://pony.town/>) `, ` [`Roblox`](<https://www.roblox.com/home>) `, and` [`Half Life`](<https://store.steampowered.com/franchise/Half-Life>)
+╰  [funfacts](https://.)﹕im a poo-shi(poodle shiba inu) kemonomimi :3
 
 ![image](https://github.com/user-attachments/assets/ca3b8a61-a1ee-474d-ab08-4029c9f63fbd)
