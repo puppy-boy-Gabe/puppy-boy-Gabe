@@ -10,7 +10,7 @@
 
 ╰ [ethnicity / race](https://.) ﹕american with european/scandinavian heritage
 
-︵ [likes , dislikes](https://.)﹕♡- Moral orel, House M.D., crk, pt, roblox, mc, BNA, soad, korn, weird al, tf2, ultrakill, dogs, sharks, and dantes inferno | ⤫- incest, other things idk just dont be flirty w me unless its like jokingly
+︵ [likes , dislikes](https://.)﹕♡- Moral orel, House M.D., crk, pt, roblox, mc, BNA, soad, korn, weird al, tf2, ultrakill, dogs, sharks, and dantes inferno | ⤫- incest, other things idk just dont be flirty w me i have a bf :3
 
 ╰  [funfacts](https://.)﹕im a poo-shi(poodle shiba inu) kemonomimi :3
 
