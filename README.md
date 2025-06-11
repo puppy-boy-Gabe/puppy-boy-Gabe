@@ -8,4 +8,5 @@
 
 ︶🐕‍🦺 ꒷꒦ {*doont* flirt with mee... i have a bf !! } ୧ ‧₊˚
 
-https://tenor.com/view/team-fortress-2-tf2-meet-the-scout-scout-meet-the-team-gif-5339047910023573079
+![image](https://github.com/user-attachments/assets/662d7b14-3a3f-4f95-b6c3-551bdc4f0aa7)
+
