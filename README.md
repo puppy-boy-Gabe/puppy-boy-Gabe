@@ -31,13 +31,8 @@
 ![tumblr_686e48e7a2e6351c60015b06b060058a_00826fb5_100](https://github.com/user-attachments/assets/13c11ba0-0a52-4ade-978d-8764f8e23044)
 
 ![tumblr_f94131a65ed697042502d95d015f7385_5f069ed3_100](https://github.com/user-attachments/assets/752abb42-66cb-4a83-b3f5-6fb58b27f453)
-
-<img width="99" height="56" alt=
-"tumblr_24d2ecbd12eba7d70879e42d06d3c0f6_38104997_100"
-src="https://github.com/user-attachments/assets/94716020-a5b2-44fa-ab6b-7a82c46797d6" />
-
+<img width="99" height="56" alt="tumblr_24d2ecbd12eba7d70879e42d06d3c0f6_38104997_100" src="https://github.com/user-attachments/assets/94716020-a5b2-44fa-ab6b-7a82c46797d6" />
 ![tumblr_f14cf69ff48ec5631a5021e061d84760_27d4053a_100](https://github.com/user-attachments/assets/6336ebe2-bdfa-4dce-b81d-a54879f283ef)
-
 ![tumblr_7120201c2b30b10bbddff926031ca361_89f9ea3b_250](https://github.com/user-attachments/assets/5b31e20b-c01d-4eb8-b966-0f4ab5435857)
 
 
