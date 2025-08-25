@@ -9,7 +9,6 @@
 ![tumblr_231796cb0902abbc37f0dccc0e2e8c0f_3c54da33_100](https://github.com/user-attachments/assets/2d828c56-4b56-4f86-8780-dc7df31afd4c)
 ![tumblr_39a94a8e906e351e71232baac48b5707_56af5c99_100](https://github.com/user-attachments/assets/cecce1d8-7875-4855-83f1-ada0497e1d98)
 ![tumblr_070411cab70a3e003ea7741223381765_f0fef707_250](https://github.com/user-attachments/assets/da8ff73b-da4a-4324-92f4-7c529ceb92e9)
-![tumblr_2913d4ace83d1acb5a830853d8041629_39279252_540](https://github.com/user-!attachments/assets/82be912b-ce02-4c07-8fb7-fff2f087ddb2)
 ![tumblr_823b77e0d4b70ec7c1b26b4b8f8c4b18_f226a22c_100](https://github.com/user-attachments/assets/66786678-d542-4050-aa67-4493098f63e0)
 <img width="99" height="56" alt="tumblr_15d8ea282e8ee9118893f9cb2004ad91_563be48c_100" src="https://github.com/user-attachments/assets/b9f13559-9674-4715-9333-9ed14971daa3" />
 ![tumblr_72cd1d3373e21281ee837a5510b3d831_96f99a92_100](https://github.com/user-attachments/assets/cbecd96d-7b2a-4b5f-b935-1bddc9cc303b)
